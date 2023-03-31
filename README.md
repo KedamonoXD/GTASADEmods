@@ -4,6 +4,8 @@ Interfaz: https://www.mediafire.com/file/ex60omxga0w4bg8/Interfaz_del_Definitive
 
 HUD: https://www.gtainside.com/en/sanandreas/mods/174865-definitive-edition-style-hud-mod/
 
+Armas: https://www.gtainside.com/en/sanandreas/weapons/171883-gta-sa-definitive-edition-weapons/
+
 Calles: https://www.mixmods.com.br/2022/08/sade-roads-for-sa-classic-hd/
 
 Vegetación: https://ouo.io/Z0Qv81
